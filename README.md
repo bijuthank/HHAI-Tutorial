@@ -7,3 +7,17 @@ Join us for an immersive tutorial, "The Intersection of Conversational AI and Hu
 
 The 4th International Conference on Hybrid Human-Artificial Intelligence
 📅 June 10, 2025, 14:00 - 18:00 | 📍 Pisa, Italy
+
+
+Perfect for designers, developers, product managers, and AI enthusiasts, this tutorial is ideal for anyone looking to build smarter, more empathetic conversational AI experiences. Don’t miss this chance to bridge the gap between technology and humanity—register now!
+
+ 
+
+For registrations:
+Please register for participating in this tutorial at the conference site: 
+
+More details to follow!
+
+Contact:
+Biju Thankachan (Biju.Thankachan@tuni.fi)
+Sama Rahman (Sama.Rahman@tuni.fi)
